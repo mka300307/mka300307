@@ -25,5 +25,5 @@
 
 
 <img src = "https://user-images.githubusercontent.com/110273891/188471806-5829f2b2-f6f1-4387-80cb-36d6aabb7b20.png" width="50">
-(https://www.instagram.com/khaisarr._) Bantu Follow bang
+(https://www.instagram.com/khaisarr._) Follw Me
 
